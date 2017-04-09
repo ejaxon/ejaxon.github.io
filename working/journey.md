@@ -11,3 +11,6 @@ So the goal is to tie things together.
 Question: how do I deal with referring to things that are happening. Good example right now is the idea of driving everyone to a single channel.
 
 Question: do I want to do essays or just thoughts? Is Medium the right venue? Maybe I do the blog on ejaxon.org and publish the essays on medium (that's probably it).
+
+Need to be careful. I'm not here to understand Gandhi, not here to understand constructive programme. I'm here to understand the work that's before me.
+
