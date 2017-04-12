@@ -28,4 +28,5 @@ permalink: /reading/
 21. Open Mind, Open Heart. Thomas Keating.
 22. Giraffe. J.M. Ledgard.
 23. How Nonviolent Struggle Works. Gene Sharp.
+24. The Sympathizer. Viet Thanh Nguyen.
 
