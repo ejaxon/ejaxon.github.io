@@ -17,11 +17,9 @@ In the decades since Gandhi's assassination there has been tremendous ongoing wo
 
 Constructive program has, in contrast, been largely neglected. It is usually mentioned in books on Gandhi and on non-violence, but generally as a side note rather than as central theme. For example, in _How Nonviolent Struggle Works_, the "Cliff Notes" version of Sharp's 3-volume work on the politics of non-violence, there is just a single reference to constructive program, and the period after struggle gets only the following:
 
-````
-    "Advocates of the use of nonviolent action in place of techniques of violence have sometimes argued that the results achieved by nonviolent action are likely to be more permanent and satisfactory than those achieved by violence.
-
-    Those advocates have argued that in the period following a successful nonviolent struggle, there will likely be "no aftermath of resentment, bitterness or revenge, no necessity for further threats of force," as Richard Gregg put it. A lasting change in the power relationships between the contending groups is also likely."
-````
+> Advocates of the use of nonviolent action in place of techniques of violence have sometimes argued that the results achieved by nonviolent action are likely to be more permanent and satisfactory than those achieved by violence.
+>
+> Those advocates have argued that in the period following a successful nonviolent struggle, there will likely be "no aftermath of resentment, bitterness or revenge, no necessity for further threats of force," as Richard Gregg put it. A lasting change in the power relationships between the contending groups is also likely.
 
 In effect, the constructive program is reduced to a simple assumption that the use of non-violent means to force change will somehow automatically result in a transformation of society.
 
