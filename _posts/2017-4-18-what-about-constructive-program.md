@@ -23,7 +23,7 @@ Constructive program has, in contrast, been largely neglected. It is usually men
 
 In effect, the constructive program is reduced to a simple assumption that the use of non-violent means to force change will somehow automatically result in a transformation of society.
 
-On the one hand it seems reasonable to assume that the aftermath of change brought about by non-violent means is likely to be better than that following violent ones. On the other hand, that assumption is actually in direct contradiction to Gandhi's assertion that the resisters are likely to simply become the new oppressors within an essentially unchanged system.
+On the one hand it seems reasonable to assume that the aftermath of change brought about by non-violent means is likely to be better than that following violent ones. On the other hand, the assumption of transformation is in direct contradiction to Gandhi's assertion that the resisters are likely to simply become the new oppressors within an essentially unchanged system.
 
 I would argue that those familiar with issues of organizational change would probably have to side with Gandhi. The underlying structures and dynamics of an organizational system are remarkably persistent, often surviving even wholesale replacement of most of the participants. And a system at the scale of an entire nation is unlikely to be less resistant to change.
 
