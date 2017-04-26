@@ -30,4 +30,5 @@ permalink: /reading/
 23. How Nonviolent Struggle Works. Gene Sharp.
 24. The Sympathizer. Viet Thanh Nguyen.
 25. Rethinking Capitalism: Economics and Policy for Sustainable and Inclusive Growth.
+26. The Road. Cormac McCarthy.
 
