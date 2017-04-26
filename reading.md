@@ -29,6 +29,6 @@ permalink: /reading/
 22. Giraffe. J.M. Ledgard.
 23. How Nonviolent Struggle Works. Gene Sharp.
 24. The Sympathizer. Viet Thanh Nguyen.
-25. Rethinking Capitalism: Economics and Policy for Sustainable and Inclusive Growth.
+25. Rethinking Capitalism: Economics and Policy for Sustainable and Inclusive Growth. Michael Jacobs, Mariana Mazzucato, eds.
 26. The Road. Cormac McCarthy.
 
