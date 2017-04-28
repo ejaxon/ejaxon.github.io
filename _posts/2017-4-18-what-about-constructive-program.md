@@ -19,13 +19,13 @@ Gandhi is known, correctly, for his pioneering use of non-violent resistance as 
 
 In the decades since Gandhi's assassination there has been tremendous ongoing work on non-violence as a mechanism for social and political change. Non-violence has been shown by researchers like Gene Sharp not just to work, but often to be more effective than violent resistance in a wide range of circumstances. There were significant successes in the Nordic countries and even in Germany during WWII and a veritable explosion of successes in 1989 and the years since, partly through the dissemination of how-to manuals like Sharp's _From Dictatorship to Democracy_. As Dan pointed out in a recent presentation, non-violence as a strategy has been so successful that a recent Nicholas Kristof column in the New York Times refers to Sharp simply as "THE expert on challenging authoritarians."
 
-The constructive program has, in contrast, been largely neglected. It is usually mentioned in books on Gandhi and on non-violence, but generally as a side note rather than as central theme. In fact, in _How Nonviolent Struggle Works_, Gene Sharp notes that:
+The constructive program has, in contrast, been largely neglected. It is usually mentioned in books on Gandhi and on non-violence, but generally as a side note rather than as central theme. In fact, some advocates of nonviolent action challenge Gandhi's assertion of the need for constructive work. In _How Nonviolent Struggle Works_, Gene Sharp writes:
 
- >> "Advocates of the use of nonviolent action in place of techniques of violence have sometimes argued that the results achieved by nonviolent action are likely to be more permanent and satisfactory than those achieved by violence."
- >> 
- >> Those advocates have argued that in the period following a successful nonviolent struggle, there will likely be "no aftermath of resentment, bitterness or revenge, no necessity for further threats of force," as Richard Gregg put it. A lasting change in the power relationships between the contending groups is also likely.
+> Advocates of the use of nonviolent action in place of techniques of violence have sometimes argued that the results achieved by nonviolent action are likely to be more permanent and satisfactory than those achieved by violence.
+> 
+> Those advocates have argued that in the period following a successful nonviolent struggle, there will likely be "no aftermath of resentment, bitterness or revenge, no necessity for further threats of force," as Richard Gregg put it. A lasting change in the power relationships between the contending groups is also likely.
 
-In effect, the constructive program is reduced to a simple assumption that the use of non-violent means to force change will somehow automatically result in a transformation of society.
+In effect, the constructive program is replaced by the assumption that the use of non-violent means to force change will somehow automatically result in a transformation of society.
 
 On the one hand it seems reasonable to assume that the aftermath of change brought about by non-violent means is likely to be better than that following violent ones. On the other hand, the assumption of transformation is in direct contradiction to Gandhi's assertion that the resisters are likely to simply become the new oppressors within an essentially unchanged system.
 
