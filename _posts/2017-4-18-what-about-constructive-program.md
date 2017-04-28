@@ -9,7 +9,11 @@ I brought this up at a session that day with my spiritual director. I expected D
 
 What he said was that it would be a _tragedy_ for me to spend time calling Congress or marching in protest. Not because making those calls or hitting the streets are not good or important things to do - they are.  But doing them would take me away from the work that only I can do. Important as they are, they aren't _mine_.
 
-Then he told me that he's been excited from the beginning about the work I'm undertaking through Code for Asheville, DemocracyApps, and now through my job at the City, that he sees the work I do as what Gandhi termed "constructive program".
+Then he told me that he's been excited from the beginning about the work I've undertaken through Code for Asheville, DemocracyApps, and now through my job at the City of Asheville, that he sees the work I do as what Gandhi termed "constructive program".
+
+So that led me to investigate just what the constructive program is and how it applies or doesn't to my work and that of civic tech generally.
+
+## Constructive Program vs Nonviolent Resistance
 
 Gandhi is known, correctly, for his pioneering use of non-violent resistance as a mechanism of social and political change. But Gandhi himself talked throughout his life, and increasingly toward its end, about a vital complementary component of non-violence that he called _constructive program_. Where non-violent resistance is designed to break down the system of oppression, constructive program is the vital process of building something better to replace it. In the concrete case of the fight for self-rule in India, Gandhi argued that failing to do the constructive part would lead to the British regime being simply replaced by an Indian version of the same thing (and he would probably argue that that is largely how it turned out). Constructive program is essentially a program for building capacity for democracy.
 

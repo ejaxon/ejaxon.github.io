@@ -31,4 +31,5 @@ permalink: /reading/
 24. The Sympathizer. Viet Thanh Nguyen.
 25. Rethinking Capitalism: Economics and Policy for Sustainable and Inclusive Growth. Michael Jacobs, Mariana Mazzucato, eds.
 26. The Road. Cormac McCarthy.
+27. The Book Thief. Markus Zusak. 
 
