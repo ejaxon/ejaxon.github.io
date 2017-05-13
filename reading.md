@@ -32,5 +32,6 @@ permalink: /reading/
 25. Rethinking Capitalism: Economics and Policy for Sustainable and Inclusive Growth. Michael Jacobs, Mariana Mazzucato, eds.
 26. The Road. Cormac McCarthy.
 27. The Book Thief. Markus Zusak.
-28. The Man in the High Castle. Philip K. Dick. 
+28. The Man in the High Castle. Philip K. Dick.
+29. The Buried Giant. Kazuo Ishiguro.
 
