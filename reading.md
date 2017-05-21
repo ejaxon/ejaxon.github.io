@@ -34,4 +34,6 @@ permalink: /reading/
 27. The Book Thief. Markus Zusak.
 28. The Man in the High Castle. Philip K. Dick.
 29. The Buried Giant. Kazuo Ishiguro.
+30. Engaging the Powers. Walter Wink.
+
 
