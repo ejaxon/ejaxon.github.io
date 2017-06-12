@@ -36,5 +36,9 @@ permalink: /reading/
 29. The Buried Giant. Kazuo Ishiguro.
 30. Engaging the Powers. Walter Wink.
 31. Super Sad True Love Story. Gary Shteyngart.
+32. Light Years. James Salter.
+33. The Productivity Project. Chris Bailey.
+
+
 
 
