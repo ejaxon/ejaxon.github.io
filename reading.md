@@ -38,6 +38,10 @@ permalink: /reading/
 31. Super Sad True Love Story. Gary Shteyngart.
 32. Light Years. James Salter.
 33. The Productivity Project. Chris Bailey.
+34. The Three-Body Problem. Cixin Liu.
+35. Cat's Cradle. Kurt Vonnegut.
+
+
 
 
 
