@@ -40,6 +40,10 @@ permalink: /reading/
 33. The Productivity Project. Chris Bailey.
 34. The Three-Body Problem. Cixin Liu.
 35. Cat's Cradle. Kurt Vonnegut.
+36. Slaughterhouse-Five. Kurt Vonnegut.
+37. Breakfast of Champions. Kurt Vonnegut.
+38. Kingdom Cons. Yuri Herrera. 
+
 
 
 
