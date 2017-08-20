@@ -42,8 +42,8 @@ permalink: /reading/
 35. Cat's Cradle. Kurt Vonnegut.
 36. Slaughterhouse-Five. Kurt Vonnegut.
 37. Breakfast of Champions. Kurt Vonnegut.
-38. Kingdom Cons. Yuri Herrera. 
-
+38. Kingdom Cons. Yuri Herrera.
+39. The Pale King. David Foster Wallace.
 
 
 
