@@ -44,6 +44,8 @@ permalink: /reading/
 37. Breakfast of Champions. Kurt Vonnegut.
 38. Kingdom Cons. Yuri Herrera.
 39. The Pale King. David Foster Wallace.
+40. Tell the Wolves I'm Home. Carol Rifka Brunt.
+
 
 
 
