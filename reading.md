@@ -45,6 +45,7 @@ permalink: /reading/
 38. Kingdom Cons. Yuri Herrera.
 39. The Pale King. David Foster Wallace.
 40. Tell the Wolves I'm Home. Carol Rifka Brunt.
+41. WTF? What's the Future and Why It's Up to Us. Tim O'Reilly.
 
 
 
