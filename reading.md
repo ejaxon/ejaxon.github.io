@@ -47,7 +47,8 @@ permalink: /reading/
 40. Tell the Wolves I'm Home. Carol Rifka Brunt.
 41. WTF? What's the Future and Why It's Up to Us. Tim O'Reilly.
 42. The Ministry of Utmost Happiness. Arundhati Roy.
-43. Submergence. J.M. Ledgard.
+43. Kanban. David J. Anderson.
+44. Submergence. J.M. Ledgard.
 
 
 
