@@ -50,6 +50,7 @@ permalink: /reading/
 43. Kanban. David J. Anderson.
 44. Submergence. J.M. Ledgard.
 45. An Atlas of Impossible Longing. Anuradha Roy.
+46. What Happened. Hillary Rodham Clinton.
 
 
 
