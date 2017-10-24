@@ -52,6 +52,8 @@ permalink: /reading/
 45. An Atlas of Impossible Longing. Anuradha Roy.
 46. What Happened. Hillary Rodham Clinton.
 47. A Legacy of Spies. John le Carré.
+48. The Penguin and the Leviathan: How Cooperation Triumphs Over Self-Interest. Yochai Benkler.
+49. Public Opinion. Walter Lippmann.
 
 
 
