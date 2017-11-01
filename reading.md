@@ -54,7 +54,9 @@ permalink: /reading/
 47. A Legacy of Spies. John le Carré.
 48. The Penguin and the Leviathan: How Cooperation Triumphs Over Self-Interest. Yochai Benkler.
 49. Public Opinion. Walter Lippmann.
-50. A Little Life. Hanya Yanagihara. 
+50. A Little Life. Hanya Yanagihara.
+51. The Great Debate: Edmund Burke, Thomas Paine, and the Birth of Right and Left. Yuval Levin.
+
 
 
 
