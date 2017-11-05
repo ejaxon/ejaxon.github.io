@@ -56,6 +56,8 @@ permalink: /reading/
 49. Public Opinion. Walter Lippmann.
 50. A Little Life. Hanya Yanagihara.
 51. The Great Debate: Edmund Burke, Thomas Paine, and the Birth of Right and Left. Yuval Levin.
+52. Lincoln in the Bardo. George Saunders.
+
 
 
 
