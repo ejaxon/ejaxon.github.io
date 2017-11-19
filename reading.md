@@ -58,6 +58,7 @@ permalink: /reading/
 51. The Great Debate: Edmund Burke, Thomas Paine, and the Birth of Right and Left. Yuval Levin.
 52. Lincoln in the Bardo. George Saunders.
 53. Miss Peregrine's Home for Peculiar Children. Ransom Riggs.
+54. The Unbearable Wholeness of Being. Ilia Delio.
 
 
 
