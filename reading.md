@@ -59,6 +59,8 @@ permalink: /reading/
 52. Lincoln in the Bardo. George Saunders.
 53. Miss Peregrine's Home for Peculiar Children. Ransom Riggs.
 54. The Unbearable Wholeness of Being. Ilia Delio.
+55. Harry Potter and the Cursed Child. J.K. Rowling, John Tiffany, Jack Thorne.
+
 
 
 
