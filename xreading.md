@@ -9,7 +9,7 @@ X2. American Crucible: Race and Nation in the Twentieth Century. Gary Gerstle. (
 X3. Structural Transformation, Deep Downturns, and Government Policy. Joseph E. Stiglitz. (NBER Working Paper 23794).
 X4. Where Modern Macroeconomics Went Wrong. Joseph E. Stiglitz. (NBER Working Paper 23795).
 X5. Just Prices. Robert C. Hockett & Roy Kreitner (https://ssrn.com/abstract=3069966).
-
+X6. The Revolution of Information Economics: The Past and the Future. Joseph E. Stiglitz. (NBER Working Paper 23780).
 
 
 
