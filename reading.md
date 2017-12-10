@@ -62,6 +62,8 @@ permalink: /reading/
 55. Harry Potter and the Cursed Child. J.K. Rowling, John Tiffany, Jack Thorne.
 56. The Color of Magic. Terry Pratchett.
 57. The Light Fantastic. Terry Pratchett.
+58. Equal Rites. Terry Pratchett
+
 
 
 
