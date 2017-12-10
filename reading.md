@@ -63,11 +63,4 @@ permalink: /reading/
 56. The Color of Magic. Terry Pratchett.
 57. The Light Fantastic. Terry Pratchett.
 58. Equal Rites. Terry Pratchett
-
-
-
-
-
-
-
-
+59. Doing Capitalism in the Innovation Economy: Markets, Speculation and the State. William H. Janeway (@billjaneway). #my2017reading
