@@ -66,3 +66,5 @@ permalink: /reading/
 59. Doing Capitalism in the Innovation Economy: Markets, Speculation and the State. William H. Janeway (@billjaneway).
 60. Mort. Terry Pratchett.
 61. Sourcery, Terry Pratchett.
+62. Rationalism, Pluralism, and Freedom. Jacob T. Levy (@jtlevy). 
+63. Wyrd Sisters. Terry Pratchett. #my2017reading
