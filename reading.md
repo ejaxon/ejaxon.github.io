@@ -3,6 +3,11 @@ layout: page
 title: Reading
 permalink: /reading/
 ---
+# 2018
+
+1. How Representation Enables Democratic Citizenship. Mark E. Warren. ECPR General Conference, Oslo, September 2017. #my2018reading #articles
+
+
 # 2017
 
 1. Slade House. David Mitchell.
