@@ -8,6 +8,8 @@ permalink: /reading/
 1. How Representation Enables Democratic Citizenship. Mark E. Warren. ECPR General Conference, Oslo, September 2017. #my2018reading #articles
 2. Devil in a Blue Dress. Walter Mosley. #my2018reading #books
 3. Decline and Fall. Evelyn Waugh. #my2018reading #books
+4. All The King's Men. Robert Penn Warren. #my2018reading #books
+
 
 
 # 2017
