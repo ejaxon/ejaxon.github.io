@@ -9,6 +9,8 @@ permalink: /reading/
 2. Devil in a Blue Dress. Walter Mosley. #my2018reading #books
 3. Decline and Fall. Evelyn Waugh. #my2018reading #books
 4. All The King's Men. Robert Penn Warren. #my2018reading #books
+5. Congress's Constitution. Josh Chafetz (@joshchafetz). #my2018reading #books
+
 
 
 
