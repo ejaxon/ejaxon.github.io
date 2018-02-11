@@ -11,7 +11,6 @@ permalink: /reading/
 4. All The King's Men. Robert Penn Warren. #my2018reading #books
 
 
-
 # 2017
 
 1. Slade House. David Mitchell.
