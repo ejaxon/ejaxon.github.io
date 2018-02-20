@@ -10,7 +10,7 @@ permalink: /reading/
 3. Decline and Fall. Evelyn Waugh. #my2018reading #books
 4. All The King's Men. Robert Penn Warren. #my2018reading #books
 5. Congress's Constitution. Josh Chafetz (@joshchafetz). #my2018reading #books
-
+6. Great Expectations. Charles Dickens. #my2018reading #books
 
 
 # 2017
