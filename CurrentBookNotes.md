@@ -1,5 +1,9 @@
 # Current Book Notes
 
+## On Democracy, Dahl
+
+Section III, Chapter 8, subsection 'The Factor of Size', location 1345. Table mapping political institutions to democratic criteria
+
 ## Healing the Heart of Democracy
 
 5 habits of the heart

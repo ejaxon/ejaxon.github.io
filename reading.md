@@ -12,6 +12,7 @@ permalink: /reading/
 5. Congress's Constitution. Josh Chafetz (@joshchafetz). #my2018reading #books
 6. Great Expectations. Charles Dickens. #my2018reading #books
 7. Healing the Heart of Democracy. Parker J. Palmer. #my2018reading #books
+8. David Copperfield. Charles Dickens. #my2018reading #books
 
 
 # 2017
