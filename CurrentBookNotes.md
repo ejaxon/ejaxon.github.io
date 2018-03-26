@@ -12,7 +12,7 @@ Toqueville
 
 Loom of Democracy chapter
 
-Most interesting bit here is the idea that founders set up a system where we can never shut any question down forever. p. 74, plus "debate sustained over time ..." on p. 81
+Most interesting bit here is the idea that founders set up a system where we can never shut any question down forever. p. 74, plus "debate sustained over time ..." on p. 81 (Note: echoed in Ian Shapiro's chapter at end of Dahl's On Democracy).
 
 In "Life in the company of strangers" chapter:
 - I don't like his coopting of "political" to mean only the corridors of power vs "public". It makes the political evil and hopeless, which doesn't need to be true.
