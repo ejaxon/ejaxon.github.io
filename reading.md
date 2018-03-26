@@ -13,6 +13,8 @@ permalink: /reading/
 6. Great Expectations. Charles Dickens. #my2018reading #books
 7. Healing the Heart of Democracy. Parker J. Palmer. #my2018reading #books
 8. David Copperfield. Charles Dickens. #my2018reading #books
+9. On Democracy. Robert A. Dahl. #my2018reading #books
+
 
 
 # 2017
