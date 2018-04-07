@@ -14,6 +14,8 @@ permalink: /reading/
 7. Healing the Heart of Democracy. Parker J. Palmer. #my2018reading #books
 8. David Copperfield. Charles Dickens. #my2018reading #books
 9. On Democracy. Robert A. Dahl. #my2018reading #books
+10. Economics for the Common Good. Jean Tirole. #my2018reading #books
+11. American Gods. Neil Gaiman. #my2018reading #books
 
 
 

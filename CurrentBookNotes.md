@@ -1,5 +1,11 @@
 # Current Book Notes
 
+## Doughnut Economics
+Reading chapter on design to distribute, p. 156.
+
+Book is eye-opening about how much we have internalized the assertions of neo-classical econ as "reality", whether about how money works, or .... Maybe tie into thread today by Noah Smith: https://twitter.com/Noahpinion/status/981891041425965057
+
+
 ## On Democracy, Dahl
 
 Section III, Chapter 8, subsection 'The Factor of Size', location 1345. Table mapping political institutions to democratic criteria
