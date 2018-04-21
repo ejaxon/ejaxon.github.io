@@ -16,7 +16,7 @@ permalink: /reading/
 9. On Democracy. Robert A. Dahl. #my2018reading #books
 10. Economics for the Common Good. Jean Tirole. #my2018reading #books
 11. American Gods. Neil Gaiman. #my2018reading #books
-
+12. Exit West. Mohsin Hamid. #my2018reading #books
 
 
 # 2017
