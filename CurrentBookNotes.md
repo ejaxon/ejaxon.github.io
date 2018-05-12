@@ -6,6 +6,27 @@ Reading chapter on design to distribute, p. 156.
 Book is eye-opening about how much we have internalized the assertions of neo-classical econ as "reality", whether about how money works, or .... Maybe tie into thread today by Noah Smith: https://twitter.com/Noahpinion/status/981891041425965057
 
 
+13. Doughnut Economics. Kate Raworth (@KateRaworth). #my2018reading #books 1/8
+
+This is a must-read book. The idea is simple & radical: we must learn to live in the doughnut-shaped space between an inner floor to human misery & an outer ecological ceiling above which lies ecological ruin (https://www.kateraworth.com/doughnut). 2/8
+
+@KateRaworth takes us through 7 ways to rethink & reframe economics to accomplish this. There is no way I can do justice to the content of the book here, but I want to highlight a couple major takeaways for me. 3/8
+
+Most important: the economy is not an implacable consequence of immutable laws to which we must adapt ourselves, it is the consequence of decisions that we have made and that we can change. Economics is a design problem. 4/8
+
+It was also eye-opening for me to see how much we (and I) have internalized the assertions of neo-classical economic theory as "reality". We fail to see solutions because we "know" them to be impossible. 5/8
+
+There is plenty in this book to scare you, but it is far from depressing. It is really a very hopeful book, with concrete examples of ways that communities can and have changed outcomes. 6/8
+
+Raworth writes from a conviction that we can change our path and confront the twin crises of climate and social degradation. As she notes, "it is striking just how quickly the unfeasibly radical can become the feasibly practical." 7/8
+
+But that won't happen unless we can learn to see our challenges with new eyes. This book will help us do that. 8/8
+
+
+
+
+
+
 ## On Democracy, Dahl
 
 Section III, Chapter 8, subsection 'The Factor of Size', location 1345. Table mapping political institutions to democratic criteria

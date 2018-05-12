@@ -17,7 +17,7 @@ permalink: /reading/
 10. Economics for the Common Good. Jean Tirole. #my2018reading #books
 11. American Gods. Neil Gaiman. #my2018reading #books
 12. Exit West. Mohsin Hamid. #my2018reading #books
-
+13. Doughnut Economics. Kate Raworth (@KateRaworth). #my2018reading #books
 
 # 2017
 
