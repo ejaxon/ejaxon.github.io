@@ -19,6 +19,8 @@ permalink: /reading/
 12. Exit West. Mohsin Hamid. #my2018reading #books
 13. Doughnut Economics. Kate Raworth (@KateRaworth). #my2018reading #books
 14. Мастер и Маргарита, Михаил Булгаков (Master and Margarita, Mikhail Bulgakov). #my2018reading #books
+15. A Heartbreaking Work Of Staggering Genius. Dave Eggers. #my2018reading #books
+
 
 
 # 2017
