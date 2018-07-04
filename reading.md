@@ -21,6 +21,7 @@ permalink: /reading/
 14. Мастер и Маргарита, Михаил Булгаков (Master and Margarita, Mikhail Bulgakov). #my2018reading #books
 15. A Heartbreaking Work Of Staggering Genius. Dave Eggers. #my2018reading #books
 16. Life After Life. Kate Atkinson. #my2018reading #books
+17. Across That Bridge: A Vision for Change and the Future of America. John Lewis (@repjohnlewis). #my2018reading #books
 
 
 
