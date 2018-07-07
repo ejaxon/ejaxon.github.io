@@ -22,6 +22,7 @@ permalink: /reading/
 15. A Heartbreaking Work Of Staggering Genius. Dave Eggers. #my2018reading #books
 16. Life After Life. Kate Atkinson. #my2018reading #books
 17. Across That Bridge: A Vision for Change and the Future of America. John Lewis (@repjohnlewis). #my2018reading #books
+18. The Efficiency Paradox: What Big Data Can't Do. Edward Tenner (@edward_tenner).  #my2018reading #books
 
 
 
