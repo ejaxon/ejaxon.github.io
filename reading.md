@@ -23,6 +23,7 @@ permalink: /reading/
 16. Life After Life. Kate Atkinson. #my2018reading #books
 17. Across That Bridge: A Vision for Change and the Future of America. John Lewis (@repjohnlewis). #my2018reading #books
 18. The Efficiency Paradox: What Big Data Can't Do. Edward Tenner (@edward_tenner).  #my2018reading #books
+19. Sing, Unburied, Sing. Jesmyn Ward (@jesmimi). #my2018reading #books
 
 
 
