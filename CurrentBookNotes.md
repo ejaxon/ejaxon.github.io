@@ -1,5 +1,6 @@
 # Current Book Notes
 
+
 ## Doughnut Economics
 Reading chapter on design to distribute, p. 156.
 
