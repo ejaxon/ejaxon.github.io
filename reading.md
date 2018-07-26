@@ -25,8 +25,7 @@ permalink: /reading/
 18. The Efficiency Paradox: What Big Data Can't Do. Edward Tenner (@edward_tenner).  #my2018reading #books
 19. Sing, Unburied, Sing. Jesmyn Ward (@jesmimi). #my2018reading #books
 20. Poor Economics: A Radical Rethinking of the Way to Fight Global Poverty. Abhijit V. Banerjee & Esther Duflo. #my2018reading #books
-
-
+21. The Next Factory of the World: How Chinese Investment is Reshaping Africa. Irene Yuan Sun. #my2018reading #books 
 
 
 # 2017

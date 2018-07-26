@@ -1,4 +1,11 @@
 # Current Book Notes
+## The Next Factory of the World: How Chinese Investment is Reshaping
+
+One of the most fascinating points is being reminded of how transformative industrialization is, whether in Africa today, China over the last 25 years, or the U.S. and western Europe more than a century ago.
+
+Good (Enough) Governance - The Chinese are doing iterative development.
+
+HIGHLIGHTED MONEY QUOTE: "institutions don't appear in the world fully formed; rather they must be used into existence."
 
 
 ## Doughnut Economics
