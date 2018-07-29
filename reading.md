@@ -26,6 +26,7 @@ permalink: /reading/
 19. Sing, Unburied, Sing. Jesmyn Ward (@jesmimi). #my2018reading #books
 20. Poor Economics: A Radical Rethinking of the Way to Fight Global Poverty. Abhijit V. Banerjee & Esther Duflo. #my2018reading #books
 21. The Next Factory of the World: How Chinese Investment is Reshaping Africa. Irene Yuan Sun. #my2018reading #books 
+22. Democracy as a Way of Life: Rethinking the Places and Practices of Public Administration. Kelly Campbell Rawlings & Thomas Catlaw (In: Government is Us 2.0, ed. by Cheryl Simrell King). #my2018reading #articles 
 
 
 # 2017
