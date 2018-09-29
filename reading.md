@@ -30,6 +30,7 @@ permalink: /reading/
 23. Отцы и Дети, Иван С. Тургенев (Fathers and Sons, Ivan S. Turgenev). #my2018reading #books
 24. Ready Player One, Ernest Cline. #my2018reading #books
 25. The Fifth Season (The Broken Earth Book 1), N. K. Jemisin (@nkjemisin). #my2018reading #books
+26. Big Magic: Creative Living Beyond Fear. Elizabeth Gilbert (@GilbertLiz). #my2018reading #books
 
 
 # 2017
