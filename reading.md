@@ -34,6 +34,7 @@ permalink: /reading/
 27. The Obelisk Gate (The Broken Earth Book 2), N. K. Jemisin (@nkjemisin). #my2018reading #books
 
 
+
 # 2017
 
 1. Slade House. David Mitchell.
