@@ -31,6 +31,7 @@ permalink: /reading/
 24. Ready Player One, Ernest Cline. #my2018reading #books
 25. The Fifth Season (The Broken Earth Book 1), N. K. Jemisin (@nkjemisin). #my2018reading #books
 26. Big Magic: Creative Living Beyond Fear. Elizabeth Gilbert (@GilbertLiz). #my2018reading #books
+27. The Obelisk Gate (The Broken Earth Book 2), N. K. Jemisin (@nkjemisin). #my2018reading #books
 
 
 # 2017
