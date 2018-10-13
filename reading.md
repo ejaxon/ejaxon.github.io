@@ -33,6 +33,7 @@ permalink: /reading/
 26. Big Magic: Creative Living Beyond Fear. Elizabeth Gilbert (@GilbertLiz). #my2018reading #books
 27. The Obelisk Gate (The Broken Earth Book 2), N. K. Jemisin (@nkjemisin). #my2018reading #books
 28. The Sleepwalkers. Hermann Broch. #my2018reading #books
+29. The Legacy of the Civil War. Robert Penn Warren. #my2018reading #books
 
 
 
