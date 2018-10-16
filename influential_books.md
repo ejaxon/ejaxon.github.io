@@ -10,7 +10,7 @@ I have read lots of great books, but only a few have profoundly shaped me or how
 Lord of the Rings. J.R.R. Tolkien.
 Ulysses. James Joyce.
 The Autobiography of Malcolm X. Malcolm X.
-My high school Western Civilization textbook (not 100% sure which book it was). William H. McNeill.
+Several books, including my HS Western Civilization textbook. William H. McNeill.
 The Elements of Style. William Strunk and E.B. White
 The Power Broker. Robert Caro.
 Alcoholics Anonymous.
@@ -19,3 +19,5 @@ A History of American Law. Lawrence M. Friedman.
 The Structure of Scientific Revolutions. Thomas S. Kuhn.
 What Are Journalists For? Jay Rosen.
 Infinite Jest. David Foster Wallace.
+Across That Bridge: A Vision for Change and the Future of America. John Lewis.
+
