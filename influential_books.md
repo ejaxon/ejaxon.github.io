@@ -16,6 +16,7 @@ The Power Broker. Robert Caro.
 Alcoholics Anonymous.
 The Bible.
 A History of American Law. Lawrence M. Friedman.
+Democracy in America. Alexis de Toqueville.
 The Structure of Scientific Revolutions. Thomas S. Kuhn.
 What Are Journalists For? Jay Rosen.
 Infinite Jest. David Foster Wallace.
