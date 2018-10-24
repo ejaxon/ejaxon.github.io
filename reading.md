@@ -35,6 +35,7 @@ permalink: /reading/
 28. The Sleepwalkers. Hermann Broch. #my2018reading #books
 29. The Legacy of the Civil War. Robert Penn Warren. #my2018reading #books
 30. I Am David. Anne Holm. #my2018reading #books
+31. The Stone Sky (The Broken Earth Book 3), N. K. Jemisin (@nkjemisin). #my2018reading #books
 
 
 
