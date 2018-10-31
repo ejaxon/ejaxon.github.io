@@ -36,7 +36,8 @@ permalink: /reading/
 29. The Legacy of the Civil War. Robert Penn Warren. #my2018reading #books
 30. I Am David. Anne Holm. #my2018reading #books
 31. The Stone Sky (The Broken Earth Book 3), N. K. Jemisin (@nkjemisin). #my2018reading #books
-32. The English and Their History. Robert Tombs. #my2018reading #books 1/
+32. The English and Their History. Robert Tombs. #my2018reading #books
+33. Remote: Office Not Required. Jason Fried & David Heinemeier Hansson. #my2018reading #books
 
 
 
