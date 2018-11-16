@@ -38,6 +38,7 @@ permalink: /reading/
 31. The Stone Sky (The Broken Earth Book 3), N. K. Jemisin (@nkjemisin). #my2018reading #books
 32. The English and Their History. Robert Tombs. #my2018reading #books
 33. Remote: Office Not Required. Jason Fried & David Heinemeier Hansson. #my2018reading #books
+34. Grant. Ron Chernow. #my2018reading #books
 
 
 
