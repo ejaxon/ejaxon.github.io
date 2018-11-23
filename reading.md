@@ -39,6 +39,8 @@ permalink: /reading/
 32. The English and Their History. Robert Tombs. #my2018reading #books
 33. Remote: Office Not Required. Jason Fried & David Heinemeier Hansson. #my2018reading #books
 34. Grant. Ron Chernow. #my2018reading #books
+35. The Fire Next Time. James Baldwin. #my2018reading #books
+
 
 
 
