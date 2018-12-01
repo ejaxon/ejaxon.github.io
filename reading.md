@@ -40,7 +40,7 @@ permalink: /reading/
 33. Remote: Office Not Required. Jason Fried & David Heinemeier Hansson. #my2018reading #books
 34. Grant. Ron Chernow. #my2018reading #books
 35. The Fire Next Time. James Baldwin. #my2018reading #books
-
+36. The Federalist Papers. Alexander Hamilton, James Madison, John Jay. #my2018reading #books
 
 
 
