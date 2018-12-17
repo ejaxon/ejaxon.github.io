@@ -42,7 +42,7 @@ permalink: /reading/
 35. The Fire Next Time. James Baldwin. #my2018reading #books
 36. The Federalist Papers. Alexander Hamilton, James Madison, John Jay. #my2018reading #books
 37. Long Shadows: Truth, Lies and History. Erna Paris. #my2018reading #books
-
+38. Unbought and Unbossed. Shirley Chisolm. #my2018reading #books
 
 
 # 2017
