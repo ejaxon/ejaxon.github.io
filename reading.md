@@ -3,6 +3,11 @@ layout: page
 title: Reading
 permalink: /reading/
 ---
+# 2019
+
+1. Quaker Witness as Sacrament. Daniel O. Snyder. #my2019reading
+
+
 # 2018
 
 1. How Representation Enables Democratic Citizenship. Mark E. Warren. ECPR General Conference, Oslo, September 2017. #my2018reading #articles
