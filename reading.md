@@ -7,7 +7,7 @@ permalink: /reading/
 
 1. Quaker Witness as Sacrament. Daniel O. Snyder. #my2019reading
 2. America's Unwritten Constitution: The Precedents and Principles We Live By. Akhil Reed Amar. #my2019reading
-
+3. Sitting in the Fire: Large Group Transformation Using Conflict and Diversity. Arnold Mindell. #my2019reading
 
 # 2018
 
