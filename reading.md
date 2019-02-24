@@ -9,6 +9,9 @@ permalink: /reading/
 2. America's Unwritten Constitution: The Precedents and Principles We Live By. Akhil Reed Amar. #my2019reading
 3. Sitting in the Fire: Large Group Transformation Using Conflict and Diversity. Arnold Mindell. #my2019reading
 4. Infinite Jest. David Foster Wallace. #my2019reading
+5. Pyramids. Terry Pratchett. #my2019reading
+6. There There. Tommy Orange. #my2019reading
+7. When and Where I Enter: The Impact of Black Women on Race and Sex in America. Paula Giddings. #my2019reading
 
 # 2018
 
