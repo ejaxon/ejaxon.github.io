@@ -12,6 +12,11 @@ permalink: /reading/
 5. Pyramids. Terry Pratchett. #my2019reading
 6. There There. Tommy Orange. #my2019reading
 7. When and Where I Enter: The Impact of Black Women on Race and Sex in America. Paula Giddings. #my2019reading
+--
+8. Gilead. Marilynne Robinson. #my2019reading
+9. Notes of a Native Son. James Baldwin. #my2019reading
+    Especially the last essay, "Stranger in the Village."
+
 
 # 2018
 
