@@ -16,6 +16,7 @@ permalink: /reading/
 8. Gilead. Marilynne Robinson. #my2019reading
 9. Notes of a Native Son. James Baldwin. #my2019reading
     Especially the last essay, "Stranger in the Village."
+10. To Shape a New World: Essays on the Political Philosphy of Martin Luther King, Jr. #my2019reading
 
 
 # 2018
