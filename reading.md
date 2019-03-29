@@ -18,7 +18,7 @@ permalink: /reading/
     Especially the last essay, "Stranger in the Village."
 10. To Shape a New World: Essays on the Political Philosphy of Martin Luther King, Jr. #my2019reading
 11. Infomocracy. Malka Older (@m_older). #my2019reading
-
+12. The Unconquerable World. Jonathan Schell. #my2019reading
 
 # 2018
 
