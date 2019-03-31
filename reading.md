@@ -20,6 +20,7 @@ permalink: /reading/
 11. Infomocracy. Malka Older (@m_older). #my2019reading
 12. The Unconquerable World. Jonathan Schell. #my2019reading
 13. Null States. Malka Older (@m_older). #my2019reading
+14. Thick and Other Essays. Tressie McMillan Cottom (@tressiemcphd). #my2019reading
 
 # 2018
 
