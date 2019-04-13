@@ -12,7 +12,6 @@ permalink: /reading/
 5. Pyramids. Terry Pratchett. #my2019reading
 6. There There. Tommy Orange. #my2019reading
 7. When and Where I Enter: The Impact of Black Women on Race and Sex in America. Paula Giddings. #my2019reading
---
 8. Gilead. Marilynne Robinson. #my2019reading
 9. Notes of a Native Son. James Baldwin. #my2019reading
     Especially the last essay, "Stranger in the Village."
@@ -21,6 +20,9 @@ permalink: /reading/
 12. The Unconquerable World. Jonathan Schell. #my2019reading
 13. Null States. Malka Older (@m_older). #my2019reading
 14. Thick and Other Essays. Tressie McMillan Cottom (@tressiemcphd). #my2019reading
+15. Mirror to America: The Autobiography of John Hope Franklin. John Hope Franklin. #my2019reading
+16. Working: Researching, Interviewing, Writing. Robert Caro. #my2019reading
+
 
 # 2018
 
