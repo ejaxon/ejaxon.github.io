@@ -22,6 +22,9 @@ permalink: /reading/
 14. Thick and Other Essays. Tressie McMillan Cottom (@tressiemcphd). #my2019reading
 15. Mirror to America: The Autobiography of John Hope Franklin. John Hope Franklin. #my2019reading
 16. Working: Researching, Interviewing, Writing. Robert Caro. #my2019reading
+17. State Tectonics. Malka Older (@m_older). #my2019reading
+
+
 
 
 # 2018
