@@ -23,6 +23,7 @@ permalink: /reading/
 15. Mirror to America: The Autobiography of John Hope Franklin. John Hope Franklin. #my2019reading
 16. Working: Researching, Interviewing, Writing. Robert Caro. #my2019reading
 17. State Tectonics. Malka Older (@m_older). #my2019reading
+18. Our Compelling Interests: The Value of Diversity for Democracy and a Prosperous Society. Earl Lewis, Nancy Cantor, eds. #my2019reading
 
 
 
