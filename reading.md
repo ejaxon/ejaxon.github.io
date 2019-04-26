@@ -24,6 +24,8 @@ permalink: /reading/
 16. Working: Researching, Interviewing, Writing. Robert Caro. #my2019reading
 17. State Tectonics. Malka Older (@m_older). #my2019reading
 18. Our Compelling Interests: The Value of Diversity for Democracy and a Prosperous Society. Earl Lewis, Nancy Cantor, eds. #my2019reading
+19. The Song of Achilles. Madeline Miller. #my2019reading
+20. Custer Died For Your Sins: An Indian Manifesto. Vine Deloria, Jr. #my2019reading
 
 
 
