@@ -26,7 +26,7 @@ permalink: /reading/
 18. Our Compelling Interests: The Value of Diversity for Democracy and a Prosperous Society. Earl Lewis, Nancy Cantor, eds. #my2019reading
 19. The Song of Achilles. Madeline Miller. #my2019reading
 20. Custer Died For Your Sins: An Indian Manifesto. Vine Deloria, Jr. #my2019reading
-
+21. Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life. Eric Klinenberg (@EricKlinenberg). #my2019reading
 
 
 
