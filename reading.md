@@ -27,6 +27,8 @@ permalink: /reading/
 19. The Song of Achilles. Madeline Miller. #my2019reading
 20. Custer Died For Your Sins: An Indian Manifesto. Vine Deloria, Jr. #my2019reading
 21. Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life. Eric Klinenberg (@EricKlinenberg). #my2019reading
+22. The Extraordinary Life of Sam Hell. Robert Dugoni (@robertdugoni). #my2019reading
+23. A New Way: Embracing the Paradox As We Lead and Serve. Matthew Dowd (@matthewjdowd). #my2019reading
 
 
 
