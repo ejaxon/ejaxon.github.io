@@ -29,7 +29,7 @@ permalink: /reading/
 21. Palaces for the People: How Social Infrastructure Can Help Fight Inequality, Polarization, and the Decline of Civic Life. Eric Klinenberg (@EricKlinenberg). #my2019reading
 22. The Extraordinary Life of Sam Hell. Robert Dugoni (@robertdugoni). #my2019reading
 23. A New Way: Embracing the Paradox As We Lead and Serve. Matthew Dowd (@matthewjdowd). #my2019reading
-
+24. The Golden Compass: His Dark Materials Book 1. Philip Pullman (@PhilipPullman). #my2019reading
 
 
 # 2018
