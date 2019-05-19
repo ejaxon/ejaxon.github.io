@@ -32,6 +32,8 @@ permalink: /reading/
 24. The Golden Compass: His Dark Materials Book 1. Philip Pullman (@PhilipPullman). #my2019reading
 25. A Nazareth Manifesto: Being With God. Samuel Wells. #my2019reading
 26. The Subtle Knife: His Dark Materials Book 2. Philip Pullman (@PhilipPullman). #my2019reading
+27. The Art of Gathering: How We Meet and Why It Matters. Priya Parker (@priyaparker). #my2019reading
+
 
 
 
