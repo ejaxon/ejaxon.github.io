@@ -33,8 +33,7 @@ permalink: /reading/
 25. A Nazareth Manifesto: Being With God. Samuel Wells. #my2019reading
 26. The Subtle Knife: His Dark Materials Book 2. Philip Pullman (@PhilipPullman). #my2019reading
 27. The Art of Gathering: How We Meet and Why It Matters. Priya Parker (@priyaparker). #my2019reading
-
-
+28. Democracy May Not Exist, But We'll Miss It When It's Gone. Astra Taylor (@astradisastra). #my2019reading
 
 
 # 2018
