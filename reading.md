@@ -34,6 +34,30 @@ permalink: /reading/
 26. The Subtle Knife: His Dark Materials Book 2. Philip Pullman (@PhilipPullman). #my2019reading
 27. The Art of Gathering: How We Meet and Why It Matters. Priya Parker (@priyaparker). #my2019reading
 28. Democracy May Not Exist, But We'll Miss It When It's Gone. Astra Taylor (@astradisastra). #my2019reading
+29. The Amber Spyglass: His Dark Materials Book 3. Philip Pullman (@PhilipPullman). #my2019reading
+30. #my2019reading
+31. #my2019reading
+32. #my2019reading
+33. #my2019reading
+34. #my2019reading
+35. #my2019reading
+36. #my2019reading
+37. #my2019reading
+38. #my2019reading
+39. #my2019reading
+40. #my2019reading
+41. #my2019reading
+42. #my2019reading
+43. #my2019reading
+44. #my2019reading
+45. #my2019reading
+46. #my2019reading
+47. #my2019reading
+48. #my2019reading
+49. #my2019reading
+50. #my2019reading
+51. #my2019reading
+52. #my2019reading
 
 
 # 2018
