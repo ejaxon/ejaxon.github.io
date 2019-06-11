@@ -35,7 +35,7 @@ permalink: /reading/
 27. The Art of Gathering: How We Meet and Why It Matters. Priya Parker (@priyaparker). #my2019reading
 28. Democracy May Not Exist, But We'll Miss It When It's Gone. Astra Taylor (@astradisastra). #my2019reading
 29. The Amber Spyglass: His Dark Materials Book 3. Philip Pullman (@PhilipPullman). #my2019reading
-30. #my2019reading
+30. Washington Black. Esi Edugyan. #my2019reading
 31. #my2019reading
 32. #my2019reading
 33. #my2019reading
