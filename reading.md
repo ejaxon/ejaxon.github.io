@@ -38,7 +38,7 @@ permalink: /reading/
 30. Washington Black. Esi Edugyan. #my2019reading
 31. The Shadow of the Wind. Carlos Ruiz Zafón. #my2019reading
 32. Battle Cry of Freedom: The Civil War Era. James McPherson. #my2019reading
-33. #my2019reading
+33. The Third Pillar: How Markets and the State Leave the Community Behind. Raghuram Rajan. #my2019reading
 34. #my2019reading
 35. #my2019reading
 36. #my2019reading
