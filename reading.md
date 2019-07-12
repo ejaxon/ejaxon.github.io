@@ -40,8 +40,8 @@ permalink: /reading/
 32. Battle Cry of Freedom: The Civil War Era. James McPherson. #my2019reading
 33. The Third Pillar: How Markets and the State Leave the Community Behind. Raghuram Rajan. #my2019reading
 34. On Writing Well. William Zinsser. #my2019reading
-35. #my2019reading
-36. #my2019reading
+35. Help, Thanks, Wow: The Three Essential Prayers. Anne Lamott (@ANNELAMOTT). #my2019reading
+36. The Angel's Game. Carlos Ruiz Zafón. #my2019reading
 37. #my2019reading
 38. #my2019reading
 39. #my2019reading
@@ -58,6 +58,7 @@ permalink: /reading/
 50. #my2019reading
 51. #my2019reading
 52. #my2019reading
+
 
 
 # 2018
