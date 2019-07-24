@@ -44,7 +44,7 @@ permalink: /reading/
 36. The Angel's Game. Carlos Ruiz Zafón. #my2019reading
 37. The Prisonder of Heaven. Carlos Ruiz Zafón. #my2019reading
 38. The Woman Suffrage Movement in America: A Reassessment. Corrine M. McConnaughy (@cmMcConnaughy). #my2019reading
-39. #my2019reading
+39. A Colony in a Nation. Chris Hayes (@chrislhayes). #my2019reading
 40. #my2019reading
 41. #my2019reading
 42. #my2019reading
