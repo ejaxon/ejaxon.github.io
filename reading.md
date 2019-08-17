@@ -42,11 +42,11 @@ permalink: /reading/
 34. On Writing Well. William Zinsser. #my2019reading
 35. Help, Thanks, Wow: The Three Essential Prayers. Anne Lamott (@ANNELAMOTT). #my2019reading
 36. The Angel's Game. Carlos Ruiz Zafón. #my2019reading
-37. The Prisonder of Heaven. Carlos Ruiz Zafón. #my2019reading
+37. The Prisoner of Heaven. Carlos Ruiz Zafón. #my2019reading
 38. The Woman Suffrage Movement in America: A Reassessment. Corrine M. McConnaughy (@cmMcConnaughy). #my2019reading
 39. A Colony in a Nation. Chris Hayes (@chrislhayes). #my2019reading
-40. #my2019reading
-41. #my2019reading
+40. Rules for Radicals: A Practical Primer for Realistic Radicals. Saul Alinsky. #my2019reading
+41. Our Declaration: A Reading of the Declaration of Independence in Defense of Equality. Danielle Allen (@dsallentess) #my2019reading
 42. #my2019reading
 43. #my2019reading
 44. #my2019reading
