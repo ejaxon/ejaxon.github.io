@@ -47,7 +47,7 @@ permalink: /reading/
 39. A Colony in a Nation. Chris Hayes (@chrislhayes). #my2019reading
 40. Rules for Radicals: A Practical Primer for Realistic Radicals. Saul Alinsky. #my2019reading
 41. Our Declaration: A Reading of the Declaration of Independence in Defense of Equality. Danielle Allen (@dsallentess) #my2019reading
-42. #my2019reading
+42. The Labyrinth of the Spirits. Carlos Ruiz Zafón. #my2019reading
 43. #my2019reading
 44. #my2019reading
 45. #my2019reading
