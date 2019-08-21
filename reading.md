@@ -48,7 +48,7 @@ permalink: /reading/
 40. Rules for Radicals: A Practical Primer for Realistic Radicals. Saul Alinsky. #my2019reading
 41. Our Declaration: A Reading of the Declaration of Independence in Defense of Equality. Danielle Allen (@dsallentess) #my2019reading
 42. The Labyrinth of the Spirits. Carlos Ruiz Zafón. #my2019reading
-43. #my2019reading
+43. Centering Prayer and Inner Awakening. Cynthia Bourgeault. #my2019reading
 44. #my2019reading
 45. #my2019reading
 46. #my2019reading
