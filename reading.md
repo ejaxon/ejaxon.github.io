@@ -49,7 +49,7 @@ permalink: /reading/
 41. Our Declaration: A Reading of the Declaration of Independence in Defense of Equality. Danielle Allen (@dsallentess) #my2019reading
 42. The Labyrinth of the Spirits. Carlos Ruiz Zafón. #my2019reading
 43. Centering Prayer and Inner Awakening. Cynthia Bourgeault. #my2019reading
-44. #my2019reading
+44. The Strange Case of Dr. Jekyll and Mr. Hyde. Robert Louis Stevenson. #my2019reading
 45. #my2019reading
 46. #my2019reading
 47. #my2019reading
