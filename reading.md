@@ -52,7 +52,7 @@ permalink: /reading/
 44. The Strange Case of Dr. Jekyll and Mr. Hyde. Robert Louis Stevenson. #my2019reading
 45. A Coffin for Dimitrios. Eric Ambler. #my2019reading
 46. Get Shorty. Elmore Leonard. #my2019reading
-47. #my2019reading
+47. 52 Pickup. Elmore Leonard. #my2019reading
 48. #my2019reading
 49. #my2019reading
 50. #my2019reading
