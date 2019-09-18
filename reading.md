@@ -53,12 +53,11 @@ permalink: /reading/
 45. A Coffin for Dimitrios. Eric Ambler. #my2019reading
 46. Get Shorty. Elmore Leonard. #my2019reading
 47. 52 Pickup. Elmore Leonard. #my2019reading
-48. #my2019reading
-49. #my2019reading
+48. Montaro Caine. Sidney Poitier. #my2019reading
+49. America, Compromised. Lawrence Lessig (@lessig) #my2019reading
 50. #my2019reading
 51. #my2019reading
 52. #my2019reading
-
 
 
 # 2018
