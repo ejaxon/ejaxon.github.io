@@ -55,7 +55,7 @@ permalink: /reading/
 47. 52 Pickup. Elmore Leonard. #my2019reading
 48. Montaro Caine. Sidney Poitier. #my2019reading
 49. America, Compromised. Lawrence Lessig (@lessig) #my2019reading
-50. #my2019reading
+50. This Fight Is Our Fight: The Battle to Save America's Middle Class. Elizabeth Warren (@ewarren). #my2019reading
 51. #my2019reading
 52. #my2019reading
 
